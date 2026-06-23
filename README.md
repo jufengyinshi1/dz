@@ -6,7 +6,7 @@
 
 ✅ 中国地区推荐网址：https://cqhtxyyx.xyz/
 
-✅ 商务合作： https://t1t1.com/
+✅ 商务合作： https://a7k9x.bvueg3-t1t1.icu
 
 ✅ 官方邮箱： jufengyingshi597@gmail.com
 
