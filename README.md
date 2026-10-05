@@ -4,7 +4,7 @@
 
 ✅ 永久域名：https://ijfys.com  
 
-✅ 中国地区推荐网址：https://jfys08.com
+✅ 中国地区推荐网址：https://jfys11.com
 
 ✅ 商务合作： [https://a7k9x.bvueg3-t1t1.icu](https://d3f7g.0v2zng-t1t1.icu?channel=WJ001)
 
